@@ -33,8 +33,12 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
+1. A merry Ballad of a rich Maid that had 18. seuerall Suitors of seuerall Countries: otherwise called the scornefull Maid. To the tune of, hoop do me no harme good man.
+I Am a young lasse, and my time doth so passe,That of late I did long for to marry▪I haue for my dée
+    _ The Second Part of the scornefull Maide. To the same tune.
+
 #####Back#####
-A Merry ballad of a rich maid that had 18 seuerall suitors of seuerall countries otherwise called Th
+Imprinted at London for Henry Go••o•.
 **Types of content**
 
   * There are 96 **verse** lines!
